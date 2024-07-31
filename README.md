@@ -1,0 +1,1 @@
+# honkai-stra-rail-new-player
